@@ -1,10 +1,9 @@
 |Software Development is not Jenga Game|
 
-![Picture1](C:\Users\hp\Documents\GitHub\arastirma-odevi-busrakibar\arastirma-odevi-busrakibar\Picture1.jpg)
+![](http://fatihsanatmerkezi.com/wp-content/uploads/bfi_thumb/resim-yagli-boya-hocasi-kursu-egitmeni-ozel-ders-fatih-istanbul-39cudmqxmndvijs799cb28.jpg)
 
 
  
-
 ***\*SOLİD PRENSİPLERİ\****
 
 ***\*“Yazılımda sürdürebilirliği sağlayan kurallar bütünü”\****
