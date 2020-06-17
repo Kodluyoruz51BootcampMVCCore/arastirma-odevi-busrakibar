@@ -1,6 +1,6 @@
 |Software Development is not Jenga Game|
 
-![](C:\Users\hp\Documents\GitHub\arastirma-odevi-busrakibar\arastirma-odevi-busrakibar\Picture1.jpg)
+![Picture1](C:\Users\hp\Documents\GitHub\arastirma-odevi-busrakibar\arastirma-odevi-busrakibar\Picture1.jpg)
 
 ![img](file:///C:\Users\hp\AppData\Local\Temp\ksohtml8304\wps1.jpg) 
 
