@@ -1,6 +1,6 @@
-|Software Development is not Jenga Game|
+					|Software Development is not Jenga Game|
 
-![](http://fatihsanatmerkezi.com/wp-content/uploads/bfi_thumb/resim-yagli-boya-hocasi-kursu-egitmeni-ozel-ders-fatih-istanbul-39cudmqxmndvijs799cb28.jpg)
+![](https://i0.wp.com/www.hasanaytac.net/wp-content/uploads/2019/02/1qfk6AFv4OF1GRd1WZJc25A.jpeg?fit=740%2C300)
 
 
  
